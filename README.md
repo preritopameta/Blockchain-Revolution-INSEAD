@@ -1,1 +1,1 @@
-# preritopameta-Blockchain-Revolution-INSEAD
+# Blockchain-Revolution-INSEAD
